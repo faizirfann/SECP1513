@@ -1,0 +1,3 @@
+## Reflection
+
+The UTMDigital Open Day visit was a meaningful and informative experience for our group. Through this visit, we gained a better understanding of UTMDigital’s roles, services, and how technology is managed and implemented within the university. The activities and talk sessions helped us relate theoretical knowledge from the course to real-world applications. The staff members were helpful and supportive, and the interview session provided valuable insights into UTMDigital’s operations. Overall, this visit enhanced our interest in the subject, improved our learning experience, and contributed positively to our understanding of the course content.
