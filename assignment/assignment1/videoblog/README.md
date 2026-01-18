@@ -1,4 +1,4 @@
-## 📂 Poster
+## 📂 VideoBlog
 
 Click the button below to view the full videoblog:
 
